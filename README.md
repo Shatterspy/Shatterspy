@@ -1,2 +1,2 @@
 - 17
-- Connect With Me on Instagram! instagram.com/harshsumn
+- Connect With Me on Instagram! @harshsumn
